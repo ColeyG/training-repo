@@ -1,1 +1,1 @@
-Yo this is Collin! I made an edit to the readme! AAAAAAAAAAAAAAAAAAAAAAAAA MY NAME JEFF
+Yo this is Collin! I made an edit to the readme! AAAAAAAAAAAAAAAAAAAAAAAAA MY NAME JEFF we made a mistake and I had to fix it
